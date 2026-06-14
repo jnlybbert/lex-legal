@@ -55,4 +55,4 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 If you have questions about this Privacy Policy, contact:
 
 **Josiah Lybbert**
-Email: jnlybbert@icloud.com
+Email: lexwordpractice@gmail.com
